@@ -2,7 +2,7 @@
 - 👀 I’m interested in listening to music, watch anime and read manga
 - 🌱 I’m currently learning physics
 - 💞️ I’m looking to collaborate on some anime series
-- 📫 How to reach me: -FB:Minh Nguyệt
+- 📫 How to reach me: in your head
 - 😄 Pronouns: Killua's wife
 - ⚡ Fun fact: I hope my anime husbands can appear in real life
 <!---
